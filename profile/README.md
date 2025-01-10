@@ -10,6 +10,8 @@ The **Manaslu Circuit Trek** is a breathtaking journey through one of Nepal’s 
 
 Whether you are planning a **12-day trek** or an extended **14-day trek**, the **Manaslu Circuit Trek** offers something for every type of traveler. It’s a true adventure that takes you through alpine forests, quaint villages, ancient monasteries, and the challenging **Larkya La Pass** at 5,160 meters.
 
+![Screenshot](https://nepaladventuretrail.com/wp-content/uploads/2024/11/manaslu-circuit-trek-nepa-adventure-trail.webp)
+
 ## Key Highlights of the Manaslu Circuit Trek
 
 - Trek around **Mount Manaslu**, Nepal’s eighth-highest peak.
@@ -19,6 +21,8 @@ Whether you are planning a **12-day trek** or an extended **14-day trek**, the *
 - Discover hidden gems, including remote monasteries, traditional Sherpa villages, and picturesque valleys.
 
 ## How Difficult Is the Manaslu Circuit Trek?
+
+![Screenshot](https://nepaladventuretrail.com/wp-content/uploads/2024/11/Annapurna-I-nepal-Adventure-trail-scaled.webp)
 
 The **Manaslu Circuit Trek difficulty** can be categorized as moderate to challenging. Due to its high altitude, long trekking days, and remote trails, it is recommended for those with prior trekking experience. The trek involves several high passes and steep ascents/descents, and trekkers should be prepared for altitude sickness prevention.
 
@@ -37,6 +41,8 @@ For a **14-day trek**, the **Manaslu Circuit Trek cost** will include the follow
 - **Guide & Porter Fees**: Hiring a guide and porter is highly recommended for a safe and enriching experience.
 
 ## Best Time for Manaslu Circuit Trek
+![Screenshot](https://nepaladventuretrail.com/wp-content/uploads/2024/11/Manasalu.png)
+
 
 The **best time for the Manaslu Circuit Trek** is during the **spring (March to May)** and **autumn (September to November)** seasons. These months offer stable weather conditions, clear skies, and mild temperatures, making the trek more enjoyable.
 
@@ -46,6 +52,8 @@ The **best time for the Manaslu Circuit Trek** is during the **spring (March to 
 **Winter** (December to February) is possible but challenging due to snow and cold temperatures, particularly at higher altitudes. **Summer/monsoon** (June to August) is not recommended due to heavy rainfall and slippery trails.
 
 ## Manaslu Circuit Trek Itinerary
+![Screenshot](https://nepaladventuretrail.com/wp-content/uploads/2024/11/manaslu-circuit-trek-nepa-adventure-trail.webp)
+
 
 Here is a sample **Manaslu Circuit Trek itinerary** for a **14-day trek**:
 
@@ -65,6 +73,7 @@ Here is a sample **Manaslu Circuit Trek itinerary** for a **14-day trek**:
 - **Day 14**: Drive back to Kathmandu.
 
 ## Manaslu Circuit Trek Distance
+![Screenshot](https://nepaladventuretrail.com/wp-content/uploads/2024/11/Annapurna-Nepal-Adventure-Trail-scaled.webp)
 
 The **Manaslu Circuit Trek distance** is approximately **177 kilometers (110 miles)**. The trek generally takes 12 to 17 days to complete, depending on the pace and itinerary.
 
@@ -79,6 +88,9 @@ The **Manaslu Circuit Trek solo** is possible but requires special permits, and 
 ## Manaslu Circuit Trek Photos
 
 Throughout the **Manaslu Circuit Trek**, you will capture stunning **photos** of snow-capped peaks, alpine meadows, rivers, and traditional villages. Make sure to bring a good camera and extra batteries!
+
+![Screenshot](https://nepaladventuretrail.com/wp-content/uploads/2024/11/Annapurna-Nepal-Adventure-Trail-scaled.webp)
+
 
 ## FAQ: Manaslu Circuit Trek
 
@@ -100,7 +112,7 @@ The **Manaslu Circuit Trek** is generally considered more difficult than the **E
 ### 6. **Can I Do the Manaslu Circuit Trek Solo?**
 Solo trekking on the **Manaslu Circuit Trek** is not allowed without a guide. Solo trekkers are required by law to have a licensed guide or porter.
 
----
+![Screenshot](https://nepaladventuretrail.com/wp-content/uploads/2024/12/Langtang-valley-trek-nepal-adventure-trail-1-scaled.webp)
 
 ## Conclusion
 
